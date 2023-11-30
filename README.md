@@ -2,7 +2,8 @@ oiiee bem vindos!
 Sou @sophiazzx 
 -
 𝙼𝚌𝚛|𝙿𝚁
-- 👾 atualmente estou 
+- 👾 atualmente estou no ensino medio
+- 1
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
